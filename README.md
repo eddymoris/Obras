@@ -1,2 +1,2 @@
 # Obras
-Narraciones de hechos cotidianos, salpicados de ficción que intentan mostrar la realidad tal como la percibe un ciudadano común.
+Narraciones de hechos cotidianos, salpicados con la ficción palpable de nuestra realidad latinoamericana.
