@@ -1,3 +1,3 @@
 # Obras
-#### Narraciones de hechos cotidianos, salpicados con la ficción palpable de nuestra realidad latinoamericana.  
+#### Narraciones de hechos cotidianos salpicados con la ficción palpable de nuestra realidad latinoamericana.  
 Intentando relatar la realidad de nuestra América, llegué a la conclusión que Gabriel García Márquez no inventó el realismo mágico, ni tan siquiera lo escogió para encaminar su obra, simplemente y, como sucede con las matemáticas que siempre estuvieron allí y no necesitaron del hombre para que la naturaleza la implemente en su labor creadora, nadie inventó este género literario, porque es inherente a nosotros, los indios de esta parte del planeta. Tal convencimiento tengo, que siento que vivo en Macondo, aunque, claro está, como pasa siempre, ¿quién en su sano juicio, le hace caso a un indio de esta parte del planeta?
